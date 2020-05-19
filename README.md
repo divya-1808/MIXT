@@ -1,2 +1,2 @@
 # MIXT
-From sprout to plate, smart and healthy.
+From sprout to plate, smart and healthy...
